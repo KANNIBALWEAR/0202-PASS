@@ -9,3 +9,6 @@ Could have hidden qualities.
 - Hidden numbers that could be a part of an ARG and give hints.
 - Live visual/audio reactivity during concerts. "Hold up your chips into the air"
 - give perks for merch, give perks for access, x
+
+MAKER: illumicyberwear
+https://www.etsy.com/shop/illumicyberwear
